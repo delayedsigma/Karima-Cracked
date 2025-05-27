@@ -1,4 +1,4 @@
-# Karima-Cracked
+![image (1)](https://github.com/user-attachments/assets/44f05ce9-b804-484f-bb1f-6a4ff993c865)# Karima-Cracked
 Karima Crack - cracked by Toxy, Raax and Boosted (for emotional support)
 github.com/toxy121
 github.com/raax7
@@ -15,3 +15,4 @@ To load the cheat using the provided injector, simply drag the Kernel-Driver.sys
 
 If you want a good OGFN cheat, join discord.gg/1hack.
 https://i.imgur.com/SbDFh9m.png
+![image (1)](https://github.com/user-attachments/assets/4d722e61-2336-4ac0-9152-ffd7b3b6846b)
