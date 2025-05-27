@@ -1,13 +1,13 @@
 # Karima-Cracked
 Karima Crack - cracked by Toxy, Raax and Boosted
 
-github.com/toxy121
+[Toxy121's Github](https://github.com/toxy121)
 
-github.com/raax7
+[Raax7's Github](https://github.com/raax7)
 
-discord.gg/pe559HakNX
+[Raax7's Discord Server](https://discord.gg/pe559HakNX)
 
-discord.gg/1hack
+[1hAck's Discord](https://discord.gg/1hack)
 
 It is highly recommended to run RUN_ME_FIRST.exe before the cheat as anti-cheats can extremely trivially check if the device "bishoplancie7" is loaded.
 
