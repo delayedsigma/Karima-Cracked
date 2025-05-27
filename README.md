@@ -1,5 +1,6 @@
 # Karima-Cracked
-Karima Crack - cracked by Toxy, Raax and Boosted (for emotional support)
+Karima Crack - cracked by Toxy, Raax and Boosted
+
 github.com/toxy121
 github.com/raax7
 discord.gg/pe559HakNX
