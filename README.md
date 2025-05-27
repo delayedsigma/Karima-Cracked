@@ -1,4 +1,4 @@
-![image (1)](https://github.com/user-attachments/assets/44f05ce9-b804-484f-bb1f-6a4ff993c865)# Karima-Cracked
+# Karima-Cracked
 Karima Crack - cracked by Toxy, Raax and Boosted (for emotional support)
 github.com/toxy121
 github.com/raax7
